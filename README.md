@@ -9,7 +9,7 @@
 
 📈 Let's connect and innovate together! 
 
-⚡ Fun fact: I love modile gaming!
+⚡ Fun fact: I love mobile gaming!
 
 <h3> 🤝🏻 Connect with Me </h3>
 
